@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @doobbbyyyyy
+- 👋 Hi, I’m @rohitdhingraaa
 - 👀 I’m interested in knowing diff websites and their useage 
 - 🌱 I’m currently learning ..
 - 💞️ I’m looking to collaborate on ...
